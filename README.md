@@ -1,4 +1,4 @@
-### Hi there 👋
+### Namaste 🙏 - I am Sai Rajendra Immadi
 
 <!--
 **immadisairaj/immadisairaj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
